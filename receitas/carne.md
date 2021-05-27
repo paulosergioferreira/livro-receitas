@@ -1,0 +1,1 @@
+temperar carne
